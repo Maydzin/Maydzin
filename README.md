@@ -1,10 +1,10 @@
-# MaydNik aka Nikita!
+# Jokergemayd aka Nikita!
 
 #### \#just trying to make it work
 
 ## Как связаться со мной
 
-- **Email**: [maydnick@gmail.com]
+- **Email**: [jokergemayd@gmail.com]
 - **LinkedIn**: [Профиль в LinkedIn]
 - **Instagram**: [Профиль в Instagram]
 
